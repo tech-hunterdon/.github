@@ -4,7 +4,7 @@
 We are a growing community of technology enthusists who like to exchange ideas and hang out in local breweries.
 
 ### When
-We meet monthly on X 
+Unless otherwise noted, we meet on the 3rd Tuesday of the month on the second floor of [Lone Eagle Brewing](https://calendar.google.com/calendar/u/0/r/day?ctok=Y2xheUB0aG91Z2h0cmlnaHRzLmNvbQ&sf=true&pli=1). This may vary if there is a special speaker and it involves a special tour at their location. The agenda will normally be shared in our Discord channel.
 
 ### Contacts
 
